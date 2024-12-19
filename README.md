@@ -1,4 +1,4 @@
-# 🦜 Bienvenue sur mon profile !
+# 🦜 Bienvenue sur mon profil !
 
 ## Salut, je suis **Martin Trouillet**, ou **Tinmaar24** 👋
 
