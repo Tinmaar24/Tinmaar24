@@ -12,7 +12,7 @@
 ## Mes réseaux 📲
 
   - 🎮 Discord : https://discord.gg/XZs3RfwNWM
-  - 🐤 Twitter : @tinmar_24
-  - 💻 Instagram : @tinmaaar_24
+  - 🐤 Twitter : [https://x.com/tinmar_24](https://x.com/tinmar_24)
+  - 💻 Instagram : https://www.instagram.com/tinmaaar_24/
   - 🎥 twitch : [@tinmar24](https://www.twitch.tv/tinmar24)
   - 👨‍🎓 Linkedin : https://www.linkedin.com/in/martin-trouillet-b9a131330/
